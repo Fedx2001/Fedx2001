@@ -1,3 +1,3 @@
 ### Heyooo
 
-Pronouns: she/her | they/them
+- Pronouns: she/her | they/them
